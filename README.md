@@ -20,7 +20,12 @@ Dalam film khusus ini,kita juga dapat mengamati bagaimana sosok gadis muda saat 
 
 Hanya bagian ini yang dibacakan saat pertama kali menonton video,dan mungkin nama sosok gadis SMA itu juga Jeje.Nah, bagi Anda yang penasaran dan ingin mengetahui penjelasan lebih lanjut beserta link video update terbaru ini dapat melalui kanal YouTube @BA REBORN UPLOAD. Sekian update berita atau info viral di media sosial baru-baru ini yang kami bagikan, jika ada yang terbaru maupun terhangat kami akan kembali berbagi disin
 
-Tidak, Anda dapat menggunakan saluran YouTube @BA REBORN UPLOAD untuk mempelajari lebih lanjut tentang penjelasan yang diberikan dalam pembaruan video baru jika Anda tertarik .
+Tidak, 
+
+Sumber : https://kausarrazky.blogspot.com
+
+
+Anda dapat menggunakan saluran YouTube @BA REBORN UPLOAD untuk mempelajari lebih lanjut tentang penjelasan yang diberikan dalam pembaruan video baru jika Anda tertarik .
 
 Pembaruan jarang untuk berita atau informasi media sosial populer disediakan di sini; jika sesuatu yang baru atau penting muncul, kami akan memberitahu Anda .
 
